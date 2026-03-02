@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing valorant.
 - 🌱 I’m currently studying at class 9.
 - 💞️ I’m looking to collaborate a girl.
-- 📫 if you are interested to talk with me https://www.instagram.com/akshyakashyap68/
+- 📫 if you are interested to talk with me https://www.instagram.com/akshya_ks_7/.
 - ⚡ Fun fact: i am interested in girls but they are not intrested in me 
 
 <!---
